@@ -6,3 +6,5 @@ Hey man.
 呵呵
 哈哈
 fantastic 
+whatsoever
+arouse
